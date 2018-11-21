@@ -1,6 +1,4 @@
-# CharlesGriswold.github.io
-
-## Web Presence (such as it is)
+# Web presence (such as it is)
 
 [GitHub Pages](https://charlesgriswold.github.io/) Here. But you probably knew that.  
 [GitHub](https://github.com/CharlesGriswold) Some of my projects. I've mostly put them on GitHub in case my computer hardware goes Tango Uniform, as it is wont to do. If you find anything useful there, that's a plus.
