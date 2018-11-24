@@ -9,7 +9,8 @@
 
 [DeviantArt](https://www.deviantart.com/charlesgriswold) Some pictures I've taken over the years.
 
-## Dusty corners
-[Facebook](https://www.facebook.com/CharlesWGriswold) I don't go there much. \*chirp chirp\*  
-[Instagram](https://www.instagram.com/chkgrz/) Mostly empty. I might upload something sometime. Maybe. \*chirp chirp chirp\*  
+## Social Media
+
+[Facebook](https://www.facebook.com/CharlesWGriswold) The world's most popular ~spy agency~ social media platform.  
+[Instagram](https://www.instagram.com/chkgrz/) I've uploaded a few pictures there. More to come.  
 
