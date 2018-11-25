@@ -14,6 +14,6 @@ The Real Charles Griswold&trade;
 
 ### Social Media
 
-[Facebook](https://www.facebook.com/CharlesWGriswold) The world's most popular ~spy agency~ social media platform.  
+[Facebook](https://www.facebook.com/CharlesWGriswold) The world's most popular ~~spy agency~~ social media platform.  
 [Instagram](https://www.instagram.com/chkgrz/) I've uploaded a few pictures there. More to come.  
 
