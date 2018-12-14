@@ -16,4 +16,6 @@ The Real Charles Griswold&trade;
 
 [Facebook](https://www.facebook.com/CharlesWGriswold) The world's most popular ~~spy agency~~ social media platform.  
 [Instagram](https://www.instagram.com/chkgrz/) I've uploaded a few pictures there. More to come.  
+[Google+](https://plus.google.com/+CharlesGriswold) G+ is going away in April, so... yeah.  
+[MeWe](https://mewe.com/i/charlesgriswold) A lot of G+ers are moving to MeWe. It seems to be pretty OK.  
 
