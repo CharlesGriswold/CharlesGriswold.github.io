@@ -1,4 +1,3 @@
-<a rel="me" href="https://mas.to/@CharlesGriswold">Mastodon</a>
 The Real Charles Griswold&trade;
 ================================
 
@@ -22,3 +21,4 @@ The Real Charles Griswold&trade;
 [MeWe](https://mewe.com/i/charlesgriswold) A lot of G+ers are moving to MeWe. It seems to be pretty OK.  
 [pluspora](https://pluspora.com/people/026e9000e17c0136ffd2005056264835) Some Plussers are going there, so I figured I would follow.
 
+<a rel="me" href="https://mas.to/@CharlesGriswold">Mastodon</a>
