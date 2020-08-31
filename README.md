@@ -1,3 +1,4 @@
+<a rel="me" href="https://mas.to/@CharlesGriswold">Mastodon</a>
 The Real Charles Griswold&trade;
 ================================
 
