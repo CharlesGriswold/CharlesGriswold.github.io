@@ -1,6 +1,10 @@
 The Real Charles Griswold&trade;
 ================================
 
+## Useful Links
+
+[DuckDuckGo Search](https://duckduckgo.com)
+
 ## Web presence (such as it is)
 
 [GitHub Pages](https://charlesgriswold.github.io/) Here. But you probably knew that.  
